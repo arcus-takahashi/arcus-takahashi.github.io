@@ -1,1 +1,0 @@
-# arcus-takahashi.github.io
